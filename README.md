@@ -12,3 +12,5 @@ c+h always allowed , main chat is always off so dont be scared to whisp me if yo
 <p align="center">
   <img src="https://i.postimg.cc/d1GtXBQ0/IMG-3757.jpg" width="450" alt="acpienpoyolu_330">
 </p>
+
+ac; acpienpoyolu_330
