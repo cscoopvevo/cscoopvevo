@@ -5,7 +5,7 @@ adult (19) cis blk mlw&m
 </p>
 
 <p align="center">
-c+h always allowed , main chat is always off so dont be scared to whisp me if you cant get my attention by booping , i try to not be dry to talk to either and very social! hmu ^5^
+c+h always allowed , main chat is always off so dont be scared to whisp me if you cant get my attention by booping , very social! hmu ^5^
 </p>
 
 
