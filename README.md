@@ -1,7 +1,7 @@
 ## neigh there everypony
 
 <p align="center">
-adult (19) cis blk bi
+adult (19) cis blk mlw&m
 </p>
 
 <p align="center">
